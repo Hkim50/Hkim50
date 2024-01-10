@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **hkim47@sfsu.edu**
 
-- 📄 Know about my experiences [file:///Users/kevin/Desktop/HyunwooKim_Resume.pdf](file:///Users/kevin/Desktop/HyunwooKim_Resume.pdf)
+- 📄 Know about my experiences 
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
