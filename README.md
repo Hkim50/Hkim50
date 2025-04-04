@@ -7,7 +7,6 @@
 
 - 📫 How to reach me **plavix1177@gmail.com**
 
-- 📄 Know about my experiences [https://kim-cv.tiiny.site/](https://kim-cv.tiiny.site/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
